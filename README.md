@@ -14,5 +14,4 @@ dark-code77's GitHub Stats
 
 dark-code77's GitHub Streak
 
-📫 Let's Connect!
-EmailLinkedIn
+
